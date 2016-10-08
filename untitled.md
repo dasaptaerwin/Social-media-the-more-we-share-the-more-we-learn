@@ -1,3 +1,9 @@
-Hey, welcome. Double click anywhere on the text to start writing. In addition to simple text you can also add text formatted in **boldface**, _italic_, and yes, math too: \(E  =  mc^{2}\)!
+One day I received an email from a researcher who is living in Japan. He said there's something wrong with my data set in a paper published in 2014. Apparently there was a mis-location in the coordinates. In another day I received email from a fellow researcher from UK asking for my availability to be the co-PI of a proposal. Both researchers said they know me and my work from social media. I even got invited for a coffee science-talk from a "mention" on Twitter. 
 
-Add images by drag'n'drop or click on the "Insert Figure" button.
+So you might ask what did I and so many others do on social media. Did we just create a random chat, spend more time on it than on our real work, the one we get paid for? No, we only share what we know and re-tweet other's that we thought would be valuable for our followers. Nothing more. We don't brag about what we do, we just letting others know what we have achieved, and what we have not due to many obstacles.   
+
+Before we know and use social media, as academia living in a developing country we suffered from brain drain, lack of ideas, closed network. Today, we can harvest ideas in a snap, add some thoughts, and having more ideas in return. We read more science than ever before learn from it and share it even more. Social media has opened more doors of opportunity        
+
+At many times, we don't know who read our post nor knowing who would deeply think about our problem, but they just pop out to send us their opinions, corrections, and inputs to expand and to enrich our work, to be more valuable for society. 
+
+On the other hand, we often offer others for solutions, instant help, or send our deepest sympathy. 
