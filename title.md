@@ -1,1 +1,1 @@
-Welcome to Authorea!
+Social media: the more we share the more we learn
