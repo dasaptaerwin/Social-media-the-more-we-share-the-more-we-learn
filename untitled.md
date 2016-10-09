@@ -9,7 +9,7 @@ One day I received an email from a researcher who is living in Japan. He said th
 
 
 
-Although Indonesia is the 4<sup>th</sup> most populated country in the world, doesn't make our research have more impact, mostly due to language barrier and limited network. **For years we tend to do research as personal or organizational event, no more and no less**. Nevertheless out of that manner, we demand acknowledgment, citations, and better yet we use that citation counts to judge who's more prominent than others. Research had been placed as a closed-loop activity, with no attention form others except the team member itself. More and more research will ended up as closed report and then locked up in somebody's drawers or some dusty shelves in a locked library. Social media could be the answer we've been looking for. And we are sure it is the answer we've been looking for. 
+Although Indonesia is the 4<sup>th</sup> most populated country in the world, doesn't make our research have more impact, mostly due to language barrier and limited network. **For years we tend to do research only as personal or organizational event, no more and no less**. Nevertheless out of that manner, we demand acknowledgment, citations, and better yet we use that citation counts to judge who are more prominent than others. Research had been placed as a closed-loop activity, with no attention form others except the team member itself. More and more research will ended up as closed report and then locked up in somebody's drawers or some dusty shelves in a locked library. Social media could be the answer we've been looking for. And we are sure it is the answer we've been looking for. 
 
 
 
@@ -17,7 +17,7 @@ Although Indonesia is the 4<sup>th</sup> most populated country in the world, do
 
 
 
-Before we know and use social media, as academics living in a developing country, we suffered from brain drain, lack of ideas, lack of facilities, and closed network. Today, we can harvest ideas in a snap, add some thoughts, and having more ideas in return. Not only from our same side of the world, but the other side too. We read more science than ever before and learn from it and disseminate it even more. Borrowing [@Thesiswhisperer](www.twitter.com/thesiswhisperer) 's words **"When I read the tweets of others I consume their thoughts and ideas"**. 
+Before we know and use social media, as academics living in a developing country, we suffered from brain drain, lack of ideas, lack of facilities, and closed network. Today, we can harvest ideas in a snap, add some thoughts, and having more ideas in return. Not only from our same side of the world, but the other side too. We read more science than ever before and learn from it and disseminate it even more. Borrowing [@Thesiswhisperer](www.twitter.com/thesiswhisperer) 's words **"When I read the tweets of others I consume their thoughts and ideas"**. We believe people now capture ideas more quickly from social media feeds. Instead of have a direct chat, most of us are now skillful in fast reading and typing to explain something in less that 160 characters.  
 
 
 
